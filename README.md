@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Nouhayla
 - 👀 I’m interested in transforming code to useful tools 
-- 📫 How to reach me: email me: harchi.nouha2002@gmail.com
+- 📫 How to reach me: email me: nouhayla.harchi@stu.khas.edu.tr
 - ⚡ Fun fact: + I can work under stress 
                + Fun to work with ^^
 
